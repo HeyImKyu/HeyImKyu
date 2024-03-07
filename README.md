@@ -1,9 +1,9 @@
 # 💫 About Me:
 
- 🔭 I’m currently working on Speech to Text Software for VRChat <br/>
+ 🔭 I’m currently working on silly Balatro mods :3 <br/>
  👯 I’m looking to collaborate <br/>
  💬 Ask me anything ^-^ <br/>
- 📫 How to reach me: 3ad4gum@gmail.com <br/>
+ 📫 How to reach me: Discord: @heyimkyu <br/>
  😄 Pronouns: She / Her
 
 ##  GitHub Stats:

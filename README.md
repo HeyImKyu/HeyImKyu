@@ -1,6 +1,6 @@
 # 💫 About Me:
 
- 🔭 I’m currently working on silly Balatro mods :3 <br/>
+ 🔭 I’m currently learning how to do NixOS stuffs :o<br/>
  👯 I’m looking to collaborate <br/>
  💬 Ask me anything ^-^ <br/>
  📫 How to reach me: Discord: @heyimkyu <br/>

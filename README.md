@@ -1,7 +1,7 @@
 # 💫 About Me:
 
- 🔭 I’m currently learning how to do NixOS stuffs :o<br/>
- 👯 I’m looking to collaborate <br/>
+ 🔭 I’m currently very stoopid <br/>
+ 👯 I’m looking to collaborate (always) <br/>
  💬 Ask me anything ^-^ <br/>
  📫 How to reach me: Discord: @heyimkyu <br/>
  😄 Pronouns: She / Her
